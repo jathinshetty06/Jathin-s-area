@@ -1,2 +1,2 @@
-# Jathin-s-area
-All are welcome
+# jathin's - area 
+welcome to all 
